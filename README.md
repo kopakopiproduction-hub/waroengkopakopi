@@ -1,1 +1,0 @@
-# waroengkopakopi
